@@ -4,7 +4,7 @@
 
 Explore the Universe. 🚀🌠🌌👨‍🚀👩‍🚀  
 Sustain the Earth. 🌏🌎🌍👨‍🌾👩‍🌾  
-Create the Virtual world. 🎨🎮💻👨‍💻👩‍💻  
+Create the Virtual Universe. 🎨🎮💻👨‍💻👩‍💻  
 
 <!---
 nickcrigger/nickcrigger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
